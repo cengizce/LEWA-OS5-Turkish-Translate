@@ -15,4 +15,4 @@ LEWA Hakkında daha fazla bilgi için resmi sitesini ziyaret edebilirsiniz; http
 
 Saygılarımla, Seyit Acar
 
-zopomobileforum.com - Administrator
+http://zopomobileforum.com/- Administrator
